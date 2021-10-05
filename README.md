@@ -1,2 +1,1 @@
-# To-Do-List-
-To Do List web site by 🅡🅘🅝🅐#0957
+Bu website Cod Are için paylaşılmıştır tamamen 🅡🅘🅝🅐#0957 tarafından tasarlanmış ve yapılmıştır.
